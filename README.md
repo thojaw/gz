@@ -11,3 +11,14 @@ Then, there is the music. Eriks best friend once said: "_It's like a reincarnati
 Last but not least, there is the mystery. Despite the fact that some people do question the Bands existence, far more people haven't even heard of them before. It's a total mystery. Just like Nihilium, *Gekrüppeldings* probably isn't even a thing. But then, we found someone who saw another guy wearing official merch! There are rumors that a close associate produced only a hand full of official t-shirts. Their value already is unquantifiable. Exciting, isn't it?
 
 ---
+
+## 3 Comments
+
+by *Nickelback3000* on *09/27 2022*
+> This band totally sucks! Why they don't release any music? What's wrong with them? I wouldn't buy any of their shit anyway!!!11111
+
+by *ThatGuy* on *09/26 2022*
+> OMG I love Gekruppelding it's the best I ever heard! When my parrot died, I listened to them all the time and it helped me realize that my parrot probably died of their music
+
+by *Pablo* on *09/26 2022*
+> Come to Brazil!!!!!!
